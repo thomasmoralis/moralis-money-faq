@@ -45,13 +45,13 @@ At the end of the day it is about building some kind of audience or becoming par
 
 Moralis Money offers 30% lifetime comission on all revenue you refer.
 
-At the time of writing this FAQ Moralis Money offers the Pro plan for $97 per month.
+At the time of writing this FAQ Moralis Money offers the Pro plan for $164 per month.
 
-You earn approximately $33 per month for each person you refer.
+You earn approximately $49 per month for each person you refer.
 
-Just 30 active referals give you approximately $1,000 extra per month.
+Just 30 active referals give you approximately $1,476 extra per month.
 
-By referring 300 people you are earning around $10,000 in passive income per month.
+By referring 300 people you are earning around $14,476 in passive income per month.
 
 ## 💷 What happens if the client upgrades their plan?
 
@@ -71,7 +71,7 @@ You can earn 10% of the revenue your sub-affiliate brings in.
 
 Let's say you have a friend who has a social media following and they sign up as an affiliate with your special link for new affiliates.
 
-If your friend signs up 300 people they would be earning $10,000 per month and you would be earning $1000 per month.
+If your friend signs up 300 people they would be earning $14,476 per month and you would be earning $1476 per month.
 
 To get a new affiliate sign up under you - use the special affiliate sign up link that you can find here: https://affiliate.moralismoney.com/p/new/programs/moralis-money/mlm/
 
